@@ -1,0 +1,2 @@
+# Husni-
+Hidup hanya sekai
